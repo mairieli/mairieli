@@ -4,6 +4,6 @@ I'm Mairieli, postdoc at SERG, TU Delft. My research focusses on enhancing devel
 bots. If you wanna know more check my [website](https://mairieli.com) or reach me out. :relaxed:
 
 
-📫 How to reach me: M.SantosWessel@tudelft.nl
+📫 How to reach me: m.wessel@tudelft.nl
 
 😄 Pronouns: she/her
